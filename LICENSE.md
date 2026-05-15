@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with secure geckoterminal sniper bot | pump-detection + arbitrage-opportunities, the #1 geckoterminal sniper bot. Includes pump-detection and
 
 
 
